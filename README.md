@@ -1,2 +1,2 @@
 # coin-flip
-well im learnin snek boi language now ¯\_(ツ)_/¯
+well i guess im learnin snek boi language now ¯\_(ツ)_/¯
